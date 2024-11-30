@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @svreyy
+- 👋 Hi, I’m @svreyy 🙇🏼‍♀️
 
 <!---
 svreyy/svreyy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
